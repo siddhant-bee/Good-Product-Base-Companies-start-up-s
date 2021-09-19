@@ -1,5 +1,5 @@
 
-# Good Product Base Companies & start-up's 
+# Good Product Base Companies & start-up's with links to there career pages!!!!
 
 This Repository contains contains the list of companies(more than FAANG) which you can join!
 
