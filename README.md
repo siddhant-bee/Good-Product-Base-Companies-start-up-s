@@ -150,7 +150,7 @@ If you have any feedback or wanat to contribute please reach out to me on Linked
 
 ## Authors
 
-- [@siddhant jha](https://www.https://www.linkedin.com/in/siddhant-jha/)
+- [@siddhant jha](https://www.linkedin.com/in/siddhant-jha/)
 
 
 
